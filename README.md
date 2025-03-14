@@ -1,5 +1,10 @@
 # Bem vindes!
 ![toby](https://c.tenor.com/w_IXfbuWwQAAAAAC/tenor.gif)
+![t2](https://c.tenor.com/6FvConnAGkYAAAAd/tenor.gif)
+![t3](https://c.tenor.com/7i0177Jp-GAAAAAd/tenor.gif)
+![t6](https://c.tenor.com/Me_XLnGTNBYAAAAd/tenor.gif)
+![t4](https://c.tenor.com/7ShHfEwCP-4AAAAd/tenor.gif)
+![t5](https://c.tenor.com/LBJFHabM1B8AAAAd/tenor.gif)
 <!--
 **mopsychosz/mopsychosz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
